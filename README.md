@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mirukato A.K.A Joan Setyo Nugroho Fariansyah Putra Kelana
+- 👋 Hi, I’m @Mirukato
 - 👀 I’m interested in Gaming
 - 🌱 I’m currently learning Programming Language
 
